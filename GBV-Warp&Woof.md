@@ -5,6 +5,8 @@ Reviewed: 5/3/2019
 
 DJ Stace
 
+There's something wrong with Robert Pollard. 
+
 Original Release Info: Following GBV's sprawling double-album Zeppelin Over China, Robert Pollard has written and recorded another full-length in record-breaking time. It's Warp and Woof (April 26, 2019), exuberantly barreling through 24 songs in just 37 minutes with a brevity similar to mid-90s GBV albums Alien Lanes and Vampire On Titus. GBV kicked this one out in a flash, recorded in studios, club soundchecks, hotel rooms and even in the tour van.
 
 FCCs: 
