@@ -7,9 +7,7 @@ DJ Stace
 
 !!!ATTENTION PROLETARIAT OF THE GIG ECONOMY! YOUR ANTHEMS HAVE ARRIVED AND THEY ARE PURE, PREMIUM F&%$ING ROCK&ROLL!!!
 
-Insistent, confrontational, nearly old-school post-punk. 
-
-Lead singer is Ian Curtis, but with optimism and the brash confidence of Shane McGowan. 
+Insistent, confrontational, nearly old-school post-punk debut alb um from this Dublin-based quintet. Razor sharp execution of blistering working class Rock&Roll designed to be played as loud as possible. Lead singer, Grian Chatten, delivers with the gravity of Ian Curtis but with optimism and the brash confidence and romanticism of Shane McGowan. 
 
 FCCs: None, nada 
 
@@ -18,10 +16,10 @@ RIYL: Shame, IDLES, The Strokes, Wire, Killing Joke, Little Richard, The Clash, 
 Play: all of them. Can't stop listening to #8, #9 & #10
 
 1.	"Big"	1:46 - Uptempo, jangling, angry, rilling, kicking angry defiant and declarative. A love song to Dublin. "But, I'm Gonna Be Big!" Yes, young man, you are.  
-2.	"Sha Sha Sha"	2:32 - Bouncy, driving and catchy. Wire-esque.
+2.	"Sha Sha Sha"	2:32 - Bouncy, driving and catchy.
 3.	"Too Real"	4:08 - Uptempo, urgent, repetetive and brilliant. Almost R.E.M.-like at first, but then it's all in. Chaotic, panning Sonic Youth guitars over driving beat. "I'm about to make alot o' money... Is it too real 4 ya?"  
 4.	"Television Screens"	4:00 - Uptempo, jangly. If Joy Dividion had made happy sounding songs. 
-5.	"Hurricane Laughter"	4:51 - Uptempo, driving, trancey, repetetive, baddass droning rock&roll. Fantastic Jim Morrison-narrative growling lyrical styling. 
+5.	"Hurricane Laughter"	4:51 - Uptempo, driving, trancey, repetetive, baddass droning rock&roll. Fantastic Jim Morrison-narrative growling lyrical styling. Wire-esque. 
 6.	"Roy's Tune"	3:00 - Slow to Midtempo, strumming, sad and great. 
 7.	"The Lotts"	4:57 - Could easily be a late 80's Cure tune. Mid-tempo, quiet, lamenting and melancholy. Fantastic and dense lyrics.
 8.	**** "Chequeless Reckless"	2:16 - Droning and authoritative uptempo venting. Wire comes to mind. "Money,... is the sandpit of the soul." Greatness.
