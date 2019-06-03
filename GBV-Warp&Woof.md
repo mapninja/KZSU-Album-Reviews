@@ -34,7 +34,7 @@ Play: Everything.
 16.  Even Next	1:40 - slow, acoustic picking and simple snare rhythm. Strings accompany. 
 17.  It Will Never Be Simple	2:32 - A sprawling mid-tempo acoustic epic compared to the rest of the album. Jangly and with a nice melody over the top. Fades out rather quickly.
 18.  The Stars Behind Us	1:23 - Familiar driving drum beat and fuzzed out rhythm and lead guitars, give way to epic crashiness and a noisy ending. 
-19.  Skull Arrow	1:04 - Fast-pased driving acoustic rhythm guitars. Silly Robert Pollard
+19.  Skull Arrow	1:04 - Fast-paced driving acoustic rhythm guitars. Silly Robert Pollard
 20.  Out Of The Blue Race	1:22 - Slow-tempo, but rocking insistent, plodding and marching. Another anthemic Pollard special. 
 21.  Coming Back From Now On	1:53 - Live or mock-live rhythm shifting rocker. Mid-tempo with great drums, changes pace at about 30 second  intervals. Nice Eddie Van Halen lead at the end. 
 22.  The Pipers, The Vipers, The Snakes   1:48 - Mid-tempo power chord-based plodding  rocker. 
