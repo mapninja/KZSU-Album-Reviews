@@ -1,4 +1,4 @@
-Album / Artist
+Album / Artist:
 
 Label: 
 
@@ -6,13 +6,14 @@ Reviewed: date
 
 DJ Stace
 
-Genral Comments / Release Notes
+General Comments / Release Notes  
+
+
 
 FCCs: 
 
-RIYL:  
+RIYL: 
 
 Play: 
 
-Tracks:
- 
+Tracks:  
