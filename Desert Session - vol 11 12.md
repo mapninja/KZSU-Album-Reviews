@@ -1,12 +1,12 @@
 Album / Artist: Vol 11 & 12 / Desert Sessions
-Label: Nonesuch
+Label: Matador
 
 Reviewed: 10/25/2019
 
 DJ Stace
 
 General Comments:  
-The desert rock & roll circus, returns. Vast and fragmentary, quirky and 
+The desert rock & roll circus, finally returns. Vast and fragmentary, quirky and familiar. Homme's curation is, as always, spot on. A killer eclectic collection/sampler from the beating heart of Desert Rock, Rancho de la Luna. 
 
 Release Notes:   
 Ending a 16-year hiatus since its last installment, the most mythical, longest running rock n roll mixtape odyssey in existence, Desert Sessions will return this October with the most ambitious entries yet in its expansive and elusive catalog: Vols. 11 & 12 (a/k/a respectively as Arrivederci Despair and Tightwads & Nitwits & Critics & Heels)...  
@@ -33,7 +33,7 @@ Rated with *****
 
 Tracks:  
 1. **FCC "SHIT"** Move Together 5:03 - (lead vocal: Billy F. Gibbons) - Midtempo weirdo-rock jam session. About 2 minutes of Billy Gibbons falsetto and wonky electronic rhythm, before all hell breaks loose with Homme's Godzilla riffage and a pots and pans chaotic drum breakdown. Shifts gears several times. Gets very Eagles (the 70's ones, not EODM) at about 3:40, then takes on a familiar sleazy Them Crooked Vultures beat to a drum breakdown fadeout. Killer. Play the Radio Edit, below.  
-2. ***** Noses in Roses Forever 5:33 - (lead vocal: Joshua Homme) - Classic uptempo QOTSA spacerock. Desert Sessions tunes have a habit of finding their way onto subsequent QOTSA albums, and this is the likely culprit. Cool robotic buzzy lead space guitar soloing, throughout. Rhythm shifts at about 1:45 and turns surfy.  Cool, production shifts throughout, riffing on the same melody. Soundtrack for the next Guardians of the Galaxy movie. Great song.   
+2. ***** Noses in Roses Forever 5:33 - (lead vocal: Joshua Homme) - Classic uptempo QOTSA ass-shaking spacerock. Desert Sessions tunes have a habit of finding their way onto subsequent QOTSA albums, and this is the likely culprit. Cool robotic buzzy lead space guitar soloing, throughout. Rhythm shifts at about 1:45 and turns surfy.  Cool, production shifts throughout, riffing on the same melody. Soundtrack for the next Guardians of the Galaxy movie. Great song.   
 3. **** Far East for the Trees 4:52 - Midtempo desert spacerock spaghetti western instrumental. Killer galloping rhythm and sitarish guitars. Sounds like a great Brant Bjork jam.   
 4. ***** If You Run 4:00 - (lead vocal: Libby Grace) - Dark brooding Appalachian folk acoustic start with atmospheric guitar feedback and build to Led Zep worthy crashing epic guitar solo battle for Middle Earth ending . Beautiful vocals. Has a She Keeps Bees vibe. Great song.    
 5. **** Crucifire 1:44 - (lead vocal: Mike Kerr) - Fast, insistent desert punk ala EODM. Killer Velveeta cheesey backup vocals.    
