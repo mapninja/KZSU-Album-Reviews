@@ -8,7 +8,7 @@ Reviewer: DJ Stace
 
 General Comments / Reviews:
 
-Seven-minute fuzz-guitar boogie from the London trio, now with Tony Coote on drums. Single edit trims it for radio. - DJ Stace  [DRAFT, edit or replace]
+Seven-minute fuzz-guitar boogie from the London trio, now with Tony Coote on drums. A trimmed single edit has its own video. - DJ Stace  [DRAFT, edit or replace]
 
 Release Notes:
 
@@ -16,7 +16,7 @@ Single from Gravity Freeze (Easy Eye Sound, May 22, 2026), the London trio's six
 The album version is 7:08 and closes Side A. The video uses a trimmed single edit, directed by Robert Schober (The Fire Note).
 Barrie Cadogan - vocals, guitar, bass, percussion; Lewis Wharton - bass; Tony Coote - drums, percussion; Holly Quin-Ankrah and Frida Touray - backing vocals.
 Produced by Rupert Lyddon and Barrie Cadogan. Recorded at Rat Salad Studios, London. Mastered by Tom Forrest.
-Cadogan says it grew out of a long jam and was added to Side A to balance the record. A Gravity Freeze album template is already in the repo.
+Cadogan says it grew out of a long jam and was added to Side A to balance the record.
 released April 23, 2026
 
 FCCs: None found  (check by ear: 1)
